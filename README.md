@@ -1,0 +1,2 @@
+# adam
+Pengen bisa diandalkan
